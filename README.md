@@ -13,9 +13,9 @@
 - Ciclos de Retorno para a Economia Circular - 4 Horas
 - Acelerando a Transição para a Economia Circular - 4 Horas
 -  Inglês 2A
--  ### Totalizando 82 Horas de Cursos Gerais
--
--  ### experiência
+- Totalizando 82 Horas de Cursos Extras Gerais
+
+-  ### Experiência
 -  Auxiliar de advocacia - Atual
-- ### premiações
+- ### Premiações
 - Medalha de Prata OBAFOG (2017)
