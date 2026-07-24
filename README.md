@@ -19,3 +19,7 @@
 -  Auxiliar de advocacia - Atual
 - ### Premiações
 - Medalha de Prata OBAFOG (2017)
+### Habilidades 
+- Trabalho em equipe
+- Disponibilidade
+- Organização
